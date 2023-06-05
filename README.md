@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Dounia99-creator i am from algeria and i am a process engineer 
+- 👋 Hi, I’m @Dounia99-creator i am from Algeria 23 years old, and i am a process engineer 
 - 👀 I’m interested in programming recently, book reading and sometimes drawing 
 - 🌱 I’m currently learning python 
 - 💞️ I’m looking to collaborate on ...
